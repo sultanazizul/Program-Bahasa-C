@@ -2,5 +2,5 @@
 
 Ada tugas dari dosen?
 
-Silakan kopas xixixi
+Silahkan kopas xixixi
 
